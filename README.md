@@ -1,7 +1,6 @@
 - 👋 Hi, this is @pxxxx0729
 - :wink: I'm interested in Everything that has nothing to do with studying~~~
 - 🌱 I’m currently learning To find myself
-- 📫 To reach me: pengx66@mail2.sysu.edu.cn
 - :cupid: Parts of me: A little bit of travel
 <div align=center>
 <img src="https://github.com/pxxxx0729/pxxxx0729/blob/main/photo/1.jpg" width="420px">
